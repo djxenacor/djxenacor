@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... coding
 - 🌱 I’m currently learning ... everything
 - 💞️ I’m looking to collaborate on ... anything
-- 📫 How to reach me ... don`t bother, I am anonymous
+- 📫 How to reach me ... don`t bother, I am anonymous, I will find you if your ELiTE!
 
 <!---
 djxenacor/djxenacor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
